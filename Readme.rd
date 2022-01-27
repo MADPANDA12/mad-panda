@@ -1,2 +1,0 @@
-# mad-panda
-Important websites
